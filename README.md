@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Mohamed Khaled
+- 👀 I’m interested in Computer Science and Machine Learning and Game Designing
+- 🌱 I’m currently learning Machine learning
+- 💞️ I’m looking to collaborate on software and programs developing
+- 💞️ Making projects in a team is is my motivation!
+- 📫 You can email me using the following email medoma7zoz@gmail.com
